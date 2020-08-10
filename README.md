@@ -10,6 +10,8 @@ Email: wmark.nicholsonu@gmail.com
   
   • Currently I am bachelor student in Innopolis University
   
+  • I am interested in cybersecurity 
+  
   • I really like parrots 🙃
   
 ![Take a look at him](https://github.com/justmark0/justmark0/blob/master/parrot.gif)
