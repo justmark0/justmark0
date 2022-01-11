@@ -3,7 +3,7 @@ You can contact me via:
 
 Telegram: @justmark0
 
-Email: wmark.nicholsonu@gmail.com
+Email: i@justmark0.me
 
 
   Here some facts about me:
