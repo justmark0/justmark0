@@ -9,8 +9,6 @@ My preferred way to communicate:
  <br />
 Here are some facts about me:
 
-  • Backend developer at [Yandex](https://github.com/yandex)
-
   • Bachelor student at Innopolis University
 
   • Interested in cybersecurity 
