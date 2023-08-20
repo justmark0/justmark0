@@ -9,7 +9,7 @@ My preferred way to communicate:
  <br />
 Here are some facts about me:
 
-  • Bachelor student at Innopolis University
+  • Graduate of Innopolis University
 
   • Interested in cybersecurity 
 
